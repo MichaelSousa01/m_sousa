@@ -2,7 +2,8 @@
 
 Olá! Eu sou **Michael Sousa**.
 
-![Foto de Perfil](https://github.com/user-attachments/assets/9bd1e8cf-2146-44fb-80c6-91fcc70d68f9)
+![michael](https://github.com/user-attachments/assets/3a1fd582-1203-4087-bf1a-d746df5645ff)
+
 
 📍 Moro em **Fortaleza - CE**
 
